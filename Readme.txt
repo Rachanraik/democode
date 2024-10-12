@@ -1,6 +1,0 @@
-uigdfiudtfhdbsygf
-kghvbvcghcvbcghcv
-jhdjbksdgbdnsbbfkd
-hfkjsbvfsnuivfbkjgbhbvvsfc
-abkvbhjkbhfghdsfhjs
-vklnvhjfhvfjb vxhgjkds
